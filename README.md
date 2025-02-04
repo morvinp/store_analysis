@@ -18,6 +18,7 @@ Top 3 selling product –
 2.	Kettle Mozzarella Basil and Pesto 175g, most often bought by older singles/couples
 3.	Kettle Tortilla Chips, honey and Jlpno chili 150g, most often bought by Older singles/couples
 
+All 3 of them are chips, which does show that snacks are bought the most.
 
 Top 3 most profitable products –
 
