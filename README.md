@@ -29,7 +29,7 @@ Characteristics of the most loyal customers –
 
 Older Single/couples and old families – buy the most from the kettle company
 
-budget members buy more products in total and also spend more money in total 
-The category of people who make the company the most profit are the budget consumers, so its smartest to invest in making sure there’s more products and services given to the budget consumers. Plus most of the budget consumers are older families, such families tend to buy in bulk more often than other categories.
+mainstream members buy more products in total and also spend more money in total 
+The category of people who make the company the most profit are the mainstream consumers, so its smartest to invest in making sure there’s more products and services bought by the mainstream consumers. Plus most of the mainstream consumers are young singles/couples, this category is more prone to impulse buying and also buying more than needed.
 
 ![2faef037-bac5-4725-8ecd-a6444324588e](https://github.com/user-attachments/assets/419a902a-4dcf-4957-8f87-a936a422cd90)
